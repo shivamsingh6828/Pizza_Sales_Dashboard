@@ -119,5 +119,4 @@ For queries or suggestions:
 
 Shivam Kumar Singh
 📧 sshivamssingh022@gmail.com
-📞 8700682813
 🔗 LinkedIn | GitHub
